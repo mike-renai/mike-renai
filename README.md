@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mike-renai
 - 🌱 I’m currently learning there are consequences to my past actions
-- 💞️ I’m looking to collaborate on Kanye Wests next album
+- 💞️ I’m looking to build something glorious and then destroy it
 - 📫 How to reach me... Play the song of storms
 
 <!---
